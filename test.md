@@ -6,6 +6,4 @@ Well the years start coming and they don't stop coming, fed to the world and I h
 
 It didn't make sense not to live for fun, your brain gets smart but your head gets dumb.
 
-
 big iron on his hip
-
